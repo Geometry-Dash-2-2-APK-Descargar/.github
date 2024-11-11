@@ -1,4 +1,4 @@
-### Geometry Dash 2.2 APK Descargar Gratis (Todo desbloqueado) Para Android 2024
+### Geometry Dash 2.2 APK Descargar Gratis (Todo desbloqueado) 2024
 Geometry Dash es un popular juego de plataformas que desafía a los jugadores a superar obstáculos al ritmo de la música. Con una jugabilidad rápida y niveles diseñados para desafiar la precisión y la habilidad, se ha convertido en un éxito entre los aficionados de juegos rítmicos y de plataformas. La versión Geometry Dash 2.2 APK ofrece nuevas características, niveles, y mejoras gráficas que llevan la experiencia a un nuevo nivel en dispositivos Android.
 
 **👩‍💻🌈 Descargar: [Geometry Dash 2.2 APK](https://geometry-dash-apk.modilimitado.io)**
